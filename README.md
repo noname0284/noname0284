@@ -1,7 +1,6 @@
-☆ ︶︶︶  ౿ ָ 🎀 𞥊   ︶︶︶ ☆
 
-Ꮺ  gabriel // 17  ๋࣭ ⭑ ♡
-જ⁀➴ ೀ minor experience in code ೀ  
-ask 4 carrd ૮{˶ᵔ ᵕ ᵔ˶ }ა   .ᐟ ₊˚⊹ ᰔ
-
-︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
+gabriel
+ 18
+minor experience in code
+ i also draw sometimes
+majoring in stupidity 
